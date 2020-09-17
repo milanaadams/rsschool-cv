@@ -71,3 +71,43 @@ Electives beyond the required courses:
 * **11/2005** - **Silver Medal** in National Russian Essay Contest among native speakers. Awarded by **ACTR**, a division of the **American council for International Education**.
 * **04/2006** - **Gold Medal** in **Alaska Olympiada of Spoken Russian** among native espeakers held by **American Council of Teachers of Russian**.
 
+## WORK EXPERIENCE
+
+### 03/2014 - CURRENT / Vector Graphic Design, Freelance.
+PORTFOLIO: https://stock.adobe.com/contributor/204298788/NatalieAdams
+
+CORE SKILLS: 
+* Vector graphics creation
+* Flyers / Brochures / Banners/ Cartoon illustrations / Realistic Vector
+* Writing description and keywords in English
+
+SOFTWARE USED:  
+* Adobe Illustrator
+* Adobe Photoshop
+* Adobe Bridge
+* Filezilla
+* StockSubmitter
+
+MAIN PLATFORMS:
+* Shutterstock
+* Adobe Stock
+* Gettyimages
+
+### 09/2011 - 09/2017 / Photographer/ Videographer, Self-Employed.
+
+SPECIALIZED IN:
+* wedding photography/videography, 
+* individual and family professional photo shoots in studio and outdoors
+* photo processing, retouching, and video editing
+
+SOFTWARE USED:
+* Adobe Photoshop,
+* Adobe Lightroom
+* Vegas Pro
+* Final Cut Pro
+
+EQUIPMENT: Canon 5d MARK III; lenses: 24-75/2.8 II, 16-35/2.8, 70-200/4, 50/1.4, 85/1.8; studio light equipment.
+
+### 04/2005 - 04/2007 / CARRS Safeway,  Retail Store.
+POSITION: Courtesy Clerk.  
+RESPONSIBILITIES: overall customer service, assisting customers in locating items.  
